@@ -1,4 +1,4 @@
-# T🇪🇺 4‑Month Europe Travel Plan
+# 🇪🇺 4‑Month Europe Travel Plan
 
 ## ✈️ Overview
 
